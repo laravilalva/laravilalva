@@ -16,4 +16,4 @@
 
 Apaixonada por tecnologia, no começo dos estudos de programação!
 
-Contato: lara.vilalva98@hotmail.com
+
